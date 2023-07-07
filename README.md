@@ -6,4 +6,5 @@ yeah baby
 calistigim restoranin GARSON-KASA-MUTFAK ucgenini kendi gozlemlerimle cozdugum kadariyla kodladim. 
 ```
 hayirli isler
+mail: emirhankarakoc@yahoo.com
 ```
